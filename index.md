@@ -20,6 +20,6 @@ I bring a wealth of expertise to the table, including deep knowledge of high-loa
 
 ## Company details
 ```
-ALEKSANDR BATSUEV, LLC
-ORLANDO, FL 32819 US
+ALEKSANDR BATSUEV, autonomo
+Spain
 ```
